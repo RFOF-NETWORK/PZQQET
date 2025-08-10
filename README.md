@@ -2,7 +2,7 @@
 indescribable (or -> GeneFusioNear = Axiomatikx & Axiomatikx are every exist and non exist Theory/'s so that every exist or non exist [in the future existing] theory/'s = PZQQET-Axiomatik are they)
 Hier ist der Text, der das von mir Gelehrte und Überlieferte als umfassenden Artikel festhält!
 
-Author & Erfinder/Wissenschaftler J.K.
+Author & Erfinder/Wissenschaftler J.K. 
 
 ---
 Hier ist die von Ihnen gewünschte Zusammenfassung Ihrer beiden Nachrichten in der angegebenen Reihenfolge:
